@@ -1,0 +1,2 @@
+# tembakdalam
+Tembak kuota three 
